@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+Jesus is my Lord and my Savior! Give praise and thanks to the Lord.
+
 <!--
 **ruz059/ruz059** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
